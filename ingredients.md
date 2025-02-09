@@ -1,3 +1,5 @@
+Let's begin!
+
 Ingredients (preparing)
 
 Meats
@@ -17,3 +19,5 @@ Prepare vegetables
 1. Rinse and drain lettuce and perilla leaves. Put them on a plate or basket.
 2. Cut a cucumber into strips 3½ inch to 4 inches in length and ½ inch thick (8-10 cm long x1½ cm thick)
 3. Chop green chili peppers and slice a few cloves of raw garlic and put them next to green lettuce and perilla leaves.
+
+Enjoy my recipe!
